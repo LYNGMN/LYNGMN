@@ -9,4 +9,4 @@
 
 
 ## Contact
-📧 [E-mail](https://go.leeyoungmin.com/mail) | 💬 [Telegram](https://go.leeyoungmin.com/telegram) | 👻 [Discord](https://go.leeyoungmin.com/discord)(https://go.leeyoungmin.com/kakao)
+📧 [E-mail](https://go.leeyoungmin.com/mail) | 💬 [Telegram](https://go.leeyoungmin.com/telegram) | 👻 [Discord](https://go.leeyoungmin.com/discord)
