@@ -1,7 +1,7 @@
 # Youngmin Lee
 이영민 (李榮敏)  
 
-- 🚀 Product Manager
+- 🚀 Maketer / Product Owner
 - 👩‍💻 Startup / Indie Hacker / Service Planning
 - ⚡ Productivity / Automation / No-code
 
